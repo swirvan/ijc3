@@ -1,6 +1,6 @@
 ## about me
 # music 
-# family is everything 
+# family  
 ## electical hobby
 ### travel and meet people
 # save the beaches
