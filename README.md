@@ -1,6 +1,7 @@
 ## about me
-# gen x lifelong music fanatic
+# music 
 # family is everything 
 ## electical hobby
 ### travel and meet people
 # save the beaches
+## gen x
