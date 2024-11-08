@@ -1,7 +1,7 @@
-## about me
-# music 
-# family  
-## electical hobby
-### travel and meet people
-# save the beaches
+## abouT me
+# musIc 
+# faMily  
+## Electrical hobbies
+### travel 
+# ocean life
 ## gen x
